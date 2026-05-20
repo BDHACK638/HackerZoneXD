@@ -1,2 +1,0 @@
-# HackerZoneXD
-hackerZoneXD
